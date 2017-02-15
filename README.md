@@ -1,2 +1,0 @@
-# Practicing
-I'm Practicing
